@@ -9,3 +9,5 @@ Meu nome é João Pedro
 ### você entra em contato comigo 📫
 
 zorzela.joao@escola.pr.gov.br
+
+![](https://media.tenor.com/RzSPDIqkgoIAAAAM/goku-dragon-ball-z.gif)
